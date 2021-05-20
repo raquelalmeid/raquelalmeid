@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Raquel, I study graphic design and I am trained in events.
+- 👀 I’m interested in everything that adds me to knowledge.
+- 🌱 I’m currently learning Marketing for Events, InDesing and Illustrator.
+- 📫 How to reach me @___rxquel in Instagram.
